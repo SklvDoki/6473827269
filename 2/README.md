@@ -1,4 +1,4 @@
 # Поддержка
 Свои претензии, отзывы и предложения вы можете написать в отзыве к приложению.
 
-[Написать отзыв](https://apps.apple.com/app/id6473827269?action=write-review)
+[Написать](https://apps.apple.com/app/id6473827269?action=write-review)
